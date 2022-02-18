@@ -12,7 +12,7 @@ TODO: Describe the installation process
 
 TODO: Write usage instructions
 
-## SUPERRRRRRRR MAMADAAAA GALAXYALLL EKISDEDEDEDEDEEDEDE DEDED ED EDED       WEÓN
+## SUPERRRRRRRR MAMADAAAA GALAXYALLL EKISDEDEDDEDED ED EDED       WEÓN
 
 ## Contributing
 
